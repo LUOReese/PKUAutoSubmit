@@ -1,5 +1,5 @@
 # PKUAutoSubmit (modified)
-11111
+解放清华
 
 **UPDATE 2020/10/18**
 
